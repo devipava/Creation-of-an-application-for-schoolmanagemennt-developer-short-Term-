@@ -1,0 +1,1 @@
+# Creation-of-an-application-for-schoolmanagemennt-developer-short-Term-
